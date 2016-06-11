@@ -1,1 +1,0 @@
-# scottdet.github.io
